@@ -1,3 +1,11 @@
+meta cognitive ai
+adaptive learning
+ai safety framework
+self aware artificial intelligence
+xai research log
+ai cognition study
+conceptual ai design
+human ai co-evolution
 
 🧠 Meta-Cognitive AI Framework
 
